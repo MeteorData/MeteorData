@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MeteorTrophy
+- 👋 Hi, I’m @Rohit
 - 👀 I’m interested in Changing the world
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on all platforms
